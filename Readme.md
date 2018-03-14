@@ -7,3 +7,7 @@ Know more on link: [www.site.com](site)
 Do you like the course? Want you more? help me with a donation , at least a coffe.
 
 I'm editing this line okay?
+
+OK
+
+Other ways of written
